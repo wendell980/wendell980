@@ -6,4 +6,4 @@
 
 **Formação: Informática Básica e Ensino Médio Incompleto**
 
-# Contato: wendellhenriquetrabalho158@gmail.com
+# Contato: www.linkedin.com/in/wendell-henrique-42822b388
